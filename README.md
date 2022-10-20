@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SandroQuridze
+- 👀 I’m interested in QA/GameDev/DevOps
+- 🌱 I’m currently learning Python?QA
+- 📫 How to reach me: Just text me on mail metroll.metro2033@mail.ru
+- Looking for Programmer Gf
+- Looking for people who would love to help with QA
+- I'm 22 learning CS in Univresity
